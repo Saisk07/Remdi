@@ -1,2 +1,0 @@
-# Remdi
-                    Preventing Movies Piracy 
